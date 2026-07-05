@@ -1,0 +1,1 @@
+# bandwagon-japan-cn2
